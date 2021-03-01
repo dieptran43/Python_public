@@ -1,2 +1,2 @@
 # Python_public
-### Watch the videos on my youtube channel(No voiceover): https://youtu.be/RRJm3-lH56A
+### Watch the video on my youtube channel(No voiceover): https://www.youtube.com/channel/UCE1cGZfooxT7-VbqVbuKjMg
